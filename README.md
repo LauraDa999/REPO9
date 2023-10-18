@@ -129,5 +129,6 @@ https://www.linkedin.com/in/laura-garcia-17056a232
 
 
 #  6. link de linkedin:
+https://www.linkedin.com/in/laura-garcia-17056a232/
 
 
